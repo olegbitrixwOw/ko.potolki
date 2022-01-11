@@ -1,0 +1,1 @@
+<a href="skype:natajniepotolki?call">natajniepotolki</a>
